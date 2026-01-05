@@ -1,3 +1,5 @@
+Academic profile (English): https://researchmap.jp/yhtakano?lang=en
+
 ### 概要
 - 高野 雄紀 (Yuki H. Takano)
 - 1993年生まれ
